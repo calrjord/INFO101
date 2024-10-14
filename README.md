@@ -1,1 +1,1 @@
-My name is Callie.
+My name is Callie. I like watermelon.
